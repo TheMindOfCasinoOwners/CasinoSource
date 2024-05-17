@@ -12,3 +12,9 @@ Contact Support :
 discord: x.111x
 
 telegram: https://t.me/goldsvetcasino1
+
+
+
+# We Have:
+
+Over 45+ GB Games so its like 1300 game. We have Stake Script, 1Win Script, Goldsvet (old and new) Script, Betfury Script, Bet365 Script And Many Other Casino And Betting Website Scripts...
